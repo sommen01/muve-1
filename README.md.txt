@@ -1,1 +1,0 @@
-Open Software Licensed v. 3.0 (OSL-3.0)
